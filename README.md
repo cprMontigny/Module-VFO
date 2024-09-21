@@ -1,2 +1,1 @@
-Dans la jungle du Github on entend pas le programmeur se lamenter...
-Les mecs qui ont créé ça sont cinglés.
+Dépose des schémas du VFO F6KRK
